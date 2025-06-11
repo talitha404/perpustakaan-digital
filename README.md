@@ -1,4 +1,4 @@
-Kelompok 1:
+Kelompok 1: Perpustakaan Digital
 
 1. Adina Nur Afida (24082010057)
 2. Talitha Nabila Candra (24082010061)
